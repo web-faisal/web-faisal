@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently working on a Netizen It LTD.<br>i'm currently learning ai & programming 
+I'm currently working on Netizen It LTD.<br>I'm currently learning ai & programming 
 
 
 ## 🌐 Socials:
